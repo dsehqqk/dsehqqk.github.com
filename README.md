@@ -1,1 +1,0 @@
-# dsehqqk.github.com
